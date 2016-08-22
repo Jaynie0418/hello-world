@@ -1,2 +1,6 @@
 # hello-world
 Just another repository
+
+Never think hard about past.It brings tears…
+Don’t think more about future.It brings fears…
+Live this moment with a smile.It brings cheers.
